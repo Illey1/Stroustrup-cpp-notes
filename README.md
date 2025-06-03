@@ -1,0 +1,1 @@
+These are just my notes I take while reading the book. Rewording what I read into notes helps me understand the material.
